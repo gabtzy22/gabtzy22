@@ -1,4 +1,4 @@
-👋 I’m Cezzann Gabrielle N. Amido, BSIT-MWA Graduate National University - Manila
+👋 I’m Cezzann Gabrielle N. Amido, a BSIT-MWA Graduate National University - Manila
 
 👀 I’m highly interested in Esports and Gaming
 
